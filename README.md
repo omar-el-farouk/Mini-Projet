@@ -1,4 +1,4 @@
 # Mini-Projet
 
-Néçairia omar el faoruk
+Néçairia omar el farouk
 groupe 03
